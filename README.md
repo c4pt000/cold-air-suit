@@ -1,4 +1,4 @@
-(like a space suit with out a helmet)
+(like a space suit without the helmet but much thinner material think hazard suits)
 
 construction suit that offer safe airconditioning to work in really hot conditions outside
 
