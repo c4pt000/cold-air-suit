@@ -1,3 +1,5 @@
+(like a space suit with out a helmet)
+
 construction suit that offer safe airconditioning to work in really hot conditions outside
 
 when its 105F or really hot outside for long periods of time
