@@ -11,3 +11,7 @@ think aircondtioning suits
 ALSO the reverse
 
 in cold areas think hot air suits with 65F hot air internally in the suit
+
+
+seeking 0.25 usd as a royalty per suit made
+dhweinberg
